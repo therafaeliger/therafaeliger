@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @therafaeliger
 - 👀 I’m interested in Robotics and Software Programming
-- 🌱 I’m currently learning (IDK, just all I want)
+- 🌱 I’m currently learning (IDK, just all things I want)
 - 💞️ I’m looking to collaborate on all opportunities that can I get :)
 - 📫 How to reach me: email me at rafaeliger.hadikusuma@gmail.com
 - 😄 Pronouns: up to you, my real name is Radya
